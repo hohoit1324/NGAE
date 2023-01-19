@@ -8,3 +8,4 @@
 >Reallity hit you hard bro
 
 * 스치 왔다감
+띠용
