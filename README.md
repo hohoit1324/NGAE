@@ -6,3 +6,5 @@
 >또한 두번쨰 응애이올시다.
 >으악 충돌이다!
 >Reallity hit you hard bro
+
+* 스치 왔다감
